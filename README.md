@@ -5,7 +5,7 @@
 Feel free to reach out and share your ideas:
 
 **X (Twitter):**  
-https://x.com/vla_arena
+Coming Soon...
 
 **WeChat Group:**
 
