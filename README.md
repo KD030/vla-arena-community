@@ -9,4 +9,4 @@ https://x.com/vla_arena
 
 **WeChat Group:**
 
-![WeChat QR Code](./images/vlaarenagroup.jpg)
+![WeChat QR Code](./images/vlaarenagroup.JPG)
